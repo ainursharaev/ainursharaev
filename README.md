@@ -2,7 +2,7 @@
 
 Glad you dropped by my page! I'm Ainur, a UI Engineer on a mission to make the digital world look and feel amazing 💅
 
-Over the past 5 years, I've been crafting UI interfaces. It all began with my genuine interest in creating visually pleasing and user-centric experiences. Seeing designs come to life on the screen still gives me that magical feeling 🪄 And in the ever-evolving landscape of the Web, there's an endless supply of challenges waiting to be tackled. I'm here to explore and conquer, one pixel at a time ✨
+Over the past 5 years, I've been crafting UI interfaces, and it all began with my genuine interest in creating visually pleasing and user-centric experiences. Seeing designs come to life on the screen still gives me that magical feeling 🪄 And in the ever-evolving landscape of the Web, there's an endless supply of challenges waiting to be tackled. I'm here to explore and conquer, one pixel at a time ✨
 
 When I'm not geeking out over code, I'm breaking a sweat with at-home workouts 💪, enjoying a mix of tech and non-tech reads 🤓, escaping into the captivating narratives of [Webtoon stories](https://www.webtoons.com/en/), or nurturing my adorable little green sidekick 🪴
 
